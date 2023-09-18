@@ -21,7 +21,7 @@ I'm enthusiastic about:
 
 Let's connect and collaborate! You can find me on:
 
-- 📧 dnatale731@gmail.com
-- 💼 linkedin.com/in/dnatale731/
+- 📧 [Email](dnatale731@gmail.com)
+- 💼 [LinkedIn](linkedin.com/in/dnatale731/)
 
 Thanks for stopping by! 😊
